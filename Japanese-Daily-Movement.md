@@ -1,5 +1,7 @@
 # Six Daily Movements of Japanese Elders
 
+- https://m.youtube.com/watch?v=8KW4sG3OoME
+
 This file documents the six movements practiced daily by Japanese elders to promote longevity, mobility, and health. These exercises are traditionally integrated into daily routines and can be performed without special equipment.
 
 ## 1. Squatting
